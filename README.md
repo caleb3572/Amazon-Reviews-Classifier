@@ -1,2 +1,2 @@
 Link to the train and test folders:
-https://drive.google.com/file/d/1Xu7Dh6wuxaBxXzG8dC-2OejkuSk7dUNK/view?usp=sharing
+https://drive.google.com/drive/folders/1SCt99EY7hmvRGeeEiNTojgDG3bUClml8?usp=sharing
